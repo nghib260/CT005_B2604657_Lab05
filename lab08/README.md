@@ -13,3 +13,4 @@ Link:https://drive.google.com/file/d/1vYtIAuMRp-4w0X44GYNODvwHlCQJh5ZD/view?usp=
 ## Danh sách liên hệ 
 Link:https://drive.google.com/file/d/17BjfJ3v-t1LssNolty8JKD4EtEGu0txs/view?usp=drive_link
 ## Video họp trực tuyến
+https://youtu.be/n0zI9Ggj2V4
