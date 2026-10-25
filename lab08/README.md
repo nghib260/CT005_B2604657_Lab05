@@ -12,5 +12,4 @@ Link:https://youtu.be/n0zI9Ggj2V4
 Link:https://drive.google.com/file/d/1vYtIAuMRp-4w0X44GYNODvwHlCQJh5ZD/view?usp=drive_link
 ## Danh sách liên hệ 
 Link:https://drive.google.com/file/d/17BjfJ3v-t1LssNolty8JKD4EtEGu0txs/view?usp=drive_link
-## Video họp trực tuyến
-Link:https://youtu.be/n0zI9Ggj2V4
+
